@@ -1,1 +1,0 @@
-https://akylaibekbolsunova.github.io/akylai-site/
